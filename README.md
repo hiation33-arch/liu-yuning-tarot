@@ -1,4 +1,4 @@
-# 🎴 Liu Yuning Color Tarot
+# Liu Yuning Color Tarot
 
 류우녕(刘宇宁) 팬 전용 컬러 타로
 
